@@ -1,0 +1,1 @@
+# proj_samobojstwa_europy
